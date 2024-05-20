@@ -1,4 +1,4 @@
-# `𝙏𝙃𝙀`𝙆𝙊𝙉𝙀𝙉𝙄_- 𝘽𝙊𝙏` 
+# `𝙏𝙃𝙀`Messi_- 𝘽𝙊𝙏` 
 
 ------------------
 > **AVISO**: Yo "Bruno Sobrino", me he retirado de todo lo relacionado con el bot o temas similares, por lo que en algún momento quedará obsoleto y/o algunos comandos dejarán de funcionar. Agradezco su preferencia durante el recorrido por este mundo de los bots.
